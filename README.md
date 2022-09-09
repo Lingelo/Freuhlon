@@ -6,4 +6,4 @@ Don't hesitate to look at my projects and suggest changes. They are welcome.
 
 You can find me here:
 
-[Twitter](https://twitter.com/Freuhlon) - [Discord](https://discord.gg/uUTrD3pS) - [Mail](mailto:angelomiguellima@gmail.com)
+[Mail](mailto:angelomiguellima@gmail.com)
